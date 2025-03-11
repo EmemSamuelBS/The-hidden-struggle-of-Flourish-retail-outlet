@@ -1,4 +1,4 @@
-# The-hidden-struggle-of-Flourish-retail-outlet
+# Comprehensive business analysis for strategic growth
 A prescriptive analysis and data driven Insight/ recommendations 
 
 
